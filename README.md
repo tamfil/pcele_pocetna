@@ -1,2 +1,2 @@
-Udjes na ono zeleno gore desno, pise code
+Udjes na ono zeleno gore desno sto pise code
 i videces tu dole download zip
