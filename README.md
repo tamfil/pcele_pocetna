@@ -1,2 +1,2 @@
 Udjes na ono zeleno gore desno, pise code
-tu samo kl
+i videces tu dole download zip
